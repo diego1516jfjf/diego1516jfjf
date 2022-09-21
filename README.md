@@ -1,0 +1,2 @@
+- 👋 oi, eu me chamo diego.doelle@escola.pr.gov.br e tenho 16 anos.
+- 🎓 estou interessado em fazer faculdade de direito.
